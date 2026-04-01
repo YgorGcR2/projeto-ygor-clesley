@@ -1,1 +1,0 @@
-# projeto-ygor-clesley
